@@ -12,3 +12,15 @@ His skin does not
 
 Don't reach in too far with your hand
 When at the campfire with the Campfire Man
+You'll see flames in the sky
+The Campfire man, flyin up high
+
+Even during the coldest of nights
+when the thunder strikes
+He'll still burn away
+Until he fades to gray
+
+His ashes fall
+Like the leaves from a tree 
+That stand up tall
+He is the Campfire man, who is all to see
